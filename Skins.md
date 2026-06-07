@@ -35,10 +35,10 @@
 ## [boop](https://drive.google.com/file/d/1ftf0e9obMWhUcYMXQwI0PLfWZwprAcgK/view?usp=sharing)
 # ![](https://imgur.com/lHdHI61.png)
 
-## [Burakku Shipu]()
+## [Cookiezi 03 2013](https://drive.google.com/file/d/1Vl_So3CK8H5GyBeU9jLgyG0Az1UiRqIy/view?usp=sharing)
 # ![](https://imgur.com/4uyX9mZ.png)
 
-## [NewSkinColor2]()
+## [Cookiezi 13 2015](https://drive.google.com/file/d/1KYMGxSBdidvbVHJ4Oe8n-JPiGrD3mEFi/view?usp=sharing)
 # ![](https://imgur.com/5lXZURK.png)
 
 ## [SameSkinButNoRingHitCirclesWeirdName]()
