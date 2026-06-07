@@ -83,5 +83,5 @@
 ## [- Seoul v11](https://drive.google.com/file/d/1ZpSfq5YBnaCNWaKcYuiOO2Bit9JpKBpl/view?usp=drive_link)
 # ![](https://imgur.com/YqiTq4G.png)
 
-## [Rafis HDDT (vaxei ver.)](https://drive.google.com/file/d/1zyLsWSYsaAx2lBxko8jfYxgbPBs2yioZ/view?usp=drive link)
+## [Rafis HDDT (vaxei ver.)](https://drive.google.com/file/d/1zyLsWSYsaAx2lBxko8jfYxgbPBs2yioZ/view?usp=sharing)
 # ![](https://imgur.com/Z0RKK8v.png)
