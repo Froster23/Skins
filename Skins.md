@@ -23,10 +23,10 @@
 ## [《CK》 Bacon boi 1.0 『blue』(other cursor)](https://drive.google.com/file/d/1aMSR5Tl2-WoxzLB6cD2VfmjveSxWV4QE/view?usp=sharing)
 # ![](https://imgur.com/UuixhEF.png)
 
-## [Seoul v9 kirby](https://drive.google.com/file/d/1UM_zdv9wYlU8KDULnnPzPvopunFRulUg/view?usp=drive_link)
+## [Seoul v9 kirby](https://drive.google.com/file/d/1IxUq1XdmzImY2ykYrMoJyhRYt89dYQn_/view?usp=sharing)
 # ![](https://imgur.com/A3eO8Yw.png)
 
-## [404 SkinNotFound v2](https://drive.google.com/file/d/1IxUq1XdmzImY2ykYrMoJyhRYt89dYQn_/view?usp=sharing)
+## [404 SkinNotFound v2](https://drive.google.com/file/d/1snrL6DqdbLAZW1ciopiaBrg4SpAIZkXQ/view?usp=sharing)
 # ![](https://imgur.com/j26yBuz.png)
 
 ## [Aristia(Edit)](https://drive.google.com/file/d/1dUlwMUwbpgHTzTAZ1M1K6GB1Cmfroo0n/view?usp=sharing)
